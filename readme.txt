@@ -1,4 +1,4 @@
 Ich will viel Geld bekommen
-ich will studieren an der TU Darmstadt
-
+ich will  an der TU Darmstadt studieren
+ich will Ruby gut studieren
 
